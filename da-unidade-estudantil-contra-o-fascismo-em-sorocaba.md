@@ -1,4 +1,4 @@
-# Da unidade estudantil contra o fascismo em Sorocaba
+#Da unidade estudantil contra o fascismo em Sorocaba
 
 Texto por Henzel Salomão
 
