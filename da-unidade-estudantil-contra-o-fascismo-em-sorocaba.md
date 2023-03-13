@@ -1,4 +1,5 @@
 # Da unidade estudantil contra o fascismo em Sorocaba
+### Por uma reconstrução dos movimentos de base e apoio às lutas radicais na região
 
 Texto por Henzel Salomão
 
