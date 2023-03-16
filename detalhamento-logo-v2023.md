@@ -2,7 +2,8 @@
 
 **Confecção, pesquisa e organização por Henzel Salomão**
 
-https://baixedetudo-net-br.blogspot.com/2022/04/adobe-illustrator-2022-v2621197-x64.html
+[https://baixedetudo-net-br.blogspot.com/2022/04/adobe-illustrator-2022-v2621197-x64.html
+](https://www.facebook.com/MarcoDominicOficial/videos/como-baixar-novo-adobe-illustrator-2022-em-portugu%C3%AAs-br-permanente-link-direto-s/1237879603408180/)
 
 ## Cores
 
