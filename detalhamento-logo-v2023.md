@@ -11,9 +11,9 @@ https://www.behance.net/gallery/116326807/POSTER-DESIGN?tracking_source=search_p
 
 ## Cores
 
-Vermelho: #E30613
-Branco: #FFFFFF
-Preto: #000000
+Vermelho: #E30613 <br>
+Branco: #FFFFFF <br>
+Preto: #000000 <br>
 
 As cores são relativas às próprias cores adotadas pela Etec Fernando Prestes, estando presentes em suas peças gráficas, logo, site etc.
 
