@@ -2,8 +2,12 @@
 
 **Confecção, pesquisa e organização por Henzel Salomão**
 
-[https://baixedetudo-net-br.blogspot.com/2022/04/adobe-illustrator-2022-v2621197-x64.html
-](https://www.facebook.com/MarcoDominicOficial/videos/como-baixar-novo-adobe-illustrator-2022-em-portugu%C3%AAs-br-permanente-link-direto-s/1237879603408180/)
+Photoshop 2022 - https://drive.google.com/file/d/1cUo9YMR6BamkHeOlj9M-skNbeeWNd7-J/view
+
+Illustrator 2022 - https://drive.google.com/file/d/1MriyGQptB332w7tUdA0rN9tRYxxjHhrL/view
+
+Winrar - https://drive.google.com/drive/folders/1xuCN82gPKa8VMB3wq-xJ7-aHVsnzf68n
+
 
 https://www.scmp.com/news/asia/east-asia/article/2112313/read-kim-jong-uns-unusual-statement-trump-full?module=perpetual_scroll_0&pgtype=article&campaign=2112313
 
