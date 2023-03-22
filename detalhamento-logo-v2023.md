@@ -2,7 +2,7 @@
 
 **Confecção, pesquisa e organização por Henzel Salomão**
 
-Photoshop 2022 - https://drive.google.com/file/d/1cUo9YMR6BamkHeOlj9M-skNbeeWNd7-J/view
+Photoshop 2022 - [https://drive.google.com/file/d/1cUo9YMR6BamkHeOlj9M-skNbeeWNd7-J/view](https://www.mediafire.com/file/vtutt189nxx2ez3/Adobe_Photoshop_2022_multil%25C3%25ADngue_-_New_Boss_-.rar/file)
 
 Illustrator 2022 - https://drive.google.com/file/d/1MriyGQptB332w7tUdA0rN9tRYxxjHhrL/view
 
