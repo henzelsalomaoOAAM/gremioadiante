@@ -1,5 +1,5 @@
 # NOTA POLÍTICA GRÊMIO ADIANTE
-### Considerações sobre a eleição de Grêmio e as necessidades atuais
+### Considerações sobre a eleição de Grêmio e as necessidades atuais da Etec Fernando Prestes
 
 24 de março de 2023
 
